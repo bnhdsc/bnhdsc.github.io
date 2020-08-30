@@ -1,6 +1,6 @@
 # Welcome to the BNHDSC
 
-We are the The Better National Hotdog and Sausage Council, an industry association that was formed to correct errors by The Council Which Shall Not Be Named.
+We are the The Best National Hotdog and Sausage Council, an industry association that was formed to correct errors by The Council Which Shall Not Be Named.
 
 ## FAQ
 
